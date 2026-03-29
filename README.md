@@ -5,13 +5,13 @@
 
 
  
-<img src="https://64.media.tumblr.com/21076d1ca7e2cd7bc92f4b38fcd16c82/df31984dff2f403a-68/s1280x1920/3b2df48e8d5b488e827ba0f815ce6ffbd73cce58.pnj" width=400>
+<img src="https://files.catbox.moe/ic67cj.png" width=600>
 
 
  
- <img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/button/pepiag.gif"> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀6teen .⠀ ᛝ 
+ <img src="https://64.media.tumblr.com/406c4389ec7fe38a9da90c7c21bcdb77/ce967dee24d9b7b9-10/s100x200/ad6cc1e3461ad3c5ad1c8bbdb39cde3d1ecdb944.gifv"> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀6teen .⠀ ᛝ 
 
-'hikaru' indou 𝗶𝗿𝗹⠀⠀⠀⠀♰　⠀𓏼⠀　𝙞𝙡𝙢𝙗𝙛𝙨𝙢𓈒 ⠀⠀⠀<img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/pix/red/tumblr_2a9833528681d7df8d8b2cdec5b15b2f_48d22ade_75.webp" width=25>
+literally varka 𝗶𝗿𝗹⠀⠀⠀⠀♰　⠀𓏼⠀　𝙞𝙡𝙢𝙗𝙛𝙨𝙢𓈒 ⠀⠀⠀<img src="https://64.media.tumblr.com/8c253454453d07b3fc653b9142dabe80/d1cde159cbf40136-54/s75x75_c1/bad914cff03dd674fd732785093fefedecf59746.gifv" width=25>
 
 𓍚　⠀	<ins>mostly</ins> offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 
