@@ -5,13 +5,13 @@
 
 
  
-<img src="https://files.catbox.moe/l8g7mu.png" width=500>
+<img src="https://files.catbox.moe/blv77k.png" width=500>
 
 
  
- <img src="https://64.media.tumblr.com/0f1001460f8c9c56c814912087006972/d1cde159cbf40136-45/s75x75_c1/7bcbe61c5d895a9845a5227a8553c0fd0c5c6aed.gifv"> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀6teen .⠀ ᛝ 
+ <img src="https://64.media.tumblr.com/b546cac4e3f8198ecef0220222547628/f9c76a237e25a0b3-0e/s75x75_c1/9e736300fce1a604ec27dfabb24c4cb670d68652.gifv" width=25> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀6teen .⠀ ᛝ 
 
-o¹ . o² 　<𝟑⠀⠀⠀⠀♰　⠀𓏼⠀　𝙞𝙡𝙢𝙗𝙛𝙨𝙢𓈒 ⠀⠀⠀<img src="https://64.media.tumblr.com/5f42b8d797526b47cb229eb6b722e71a/d1cde159cbf40136-a0/s75x75_c1/92a3e8aa1e77dd11f96c16e2a67e1061911422dd.gifv" width=25>
+o¹ . o² 　<𝟑⠀⠀⠀⠀♰　⠀𓏼⠀　𝙞𝙡𝙢𝙗𝙛𝙨𝙢𓈒 ⠀⠀⠀<img src="https://64.media.tumblr.com/3242d0251dba3835447699df9fac4864/4b48658cc91159b0-a7/s1280x1920/11013dea2a1a613235470231975186cd9e31f539.pnj" width=25>
 
 𓍚　⠀	<ins>mostly</ins> offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 
